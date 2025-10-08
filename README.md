@@ -9,3 +9,5 @@ Padahal bakso doang itu ga bikin kenyang
 Apalagi bakso kecil doang
 
 percobaan tugas u/ peer
+
+es teh enak kalo pake es
