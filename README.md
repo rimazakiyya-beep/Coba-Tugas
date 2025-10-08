@@ -12,3 +12,6 @@ percobaan tugas u/ peer
 
 milkshake enak kalo rasa stroberri
 
+tapi saya suka matcha meski rasany kek rumput
+
+
