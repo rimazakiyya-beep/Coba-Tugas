@@ -10,8 +10,5 @@ Apalagi bakso kecil doang
 
 percobaan tugas u/ peer
 
-es teh enak kalo pake es
+milkshake enak kalo rasa stroberri
 
-tapi gk enak kalo es teh ny anget
-
-dah lah mau milkshake rasa stroberri
